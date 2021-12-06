@@ -1,3 +1,3 @@
-Tech Lead na B3, a bolsa de valores do Brasil! 
+Senior Software Engineer no MELI !  :)
 
 https://www.linkedin.com/in/vinicius-robledo/
